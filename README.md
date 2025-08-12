@@ -1,5 +1,5 @@
 
-# [Yestar_ 💫](https://80000coding.oopy.io/7206b771-5f1a-4cbc-9fb3-09a2ecab35a9)
+# [Yestar_ 💫](https://blog.naver.com/yestar__)
 
 **🌱 I’m currently learning ..**
 
